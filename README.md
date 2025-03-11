@@ -11,8 +11,8 @@ fd
 bvㄴㄴ
 dsfefddfdss
 ㄹㅇㅊdf
-asㅇㄴxㅌㅋ
-dfdhg
+asㅇㄴxㅌㅋㄹㅇ
+dfdhgㄹㅇ
 fd
 fd
 dsa
