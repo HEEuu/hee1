@@ -6,14 +6,14 @@ re
 ㄴㅇsdㄹㅗ
 ㄴㅇ
 ㅇㄴsdj
-홓vgf ㅗ
+홓vgf ㅗㄴㅇ
 bvㄴㄴ
 dsfefddfdssghsdf
 ㄹㅇㅊdfㄴㅇdfㄹ
 dfdhgㄹㅇcㄴㅇdㅗasdxㄹㅇd
 fdnㅇfdfㅇㄴ
 fdsddsfdsㅎㄹ
-dsaㅊg0
+dsaㅊg0ㅇㄴ
 fㅇㄹ
 ㄴㅁ
 df
