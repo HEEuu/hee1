@@ -12,7 +12,7 @@ bvㄴㄴ
 ㄹㅇㅊdfㄴㅇdfㄹㄴㅇ
 dfdhgㄹㅇcㄴㅇdㅗasdxㄹㅇd
 fdnㅇfdfㅇㄴ
-fdsddsfdsㅎㄹ
+ㄴㅇㄹㄹㅇㄴ
 dsaㅊg0ㅇㄴㅇㄴ
 fㅇㄹ
 ㄴㅁ
