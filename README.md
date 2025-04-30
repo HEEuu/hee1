@@ -3,3 +3,4 @@ git init add . git
 fg
 rtg
 ㅇㄴㅁ
+f
