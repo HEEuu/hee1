@@ -9,5 +9,5 @@ f
 ㅌㅋ
 ㄹㅇ
 fgd
-nm
+nmㅇㄴ
 sdㄴㅇ
