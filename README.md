@@ -7,7 +7,7 @@ f
 ㄹdsd
 ㅇㄹㅇㅠㅗr
 ㅌㅋfdfd
-ㄹㅇ
+ㄹㅇㅇㄴ
 fgd호ㄴㄹgh
 nmㅇㄴㄹ휴ㄴㅇ
 gffg
